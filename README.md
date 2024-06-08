@@ -1,8 +1,5 @@
 
 - 👋 Hi, I’m @usaodatov
-- 👀 I’m interested in ... politics and coding
-- 🌱 I’m currently learning ... AI and Machine learning
-- 💞️ I’m looking to collaborate on ... small big projects = i want knowledge
 - 📫 How to reach me ... saodatov@gmail.com  
 - 😄 Pronouns: ... be prejudiced, find solutions
 - ⚡ Fun fact: ... i suck in arguments!
